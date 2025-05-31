@@ -8,4 +8,4 @@
 #### PGH is my stage name, an abbreviation for Pyeonggihwa, and when typed on a Korean keyboard, it becomes vudrlghk.
 #### I drew the profile picture myself.
 
-📧 cinema@naver.com 📧
+📧 cinema312@naver.com 📧
